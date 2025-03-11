@@ -7,6 +7,7 @@ I've now been doing daily Tesla protests for over a week, which, incredibly, mak
 * People honk in support
 * People wave
 * People give thumbs up
+* People blink their lights
 
 ## Here's what I do to run a Tesla protest:
 
