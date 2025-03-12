@@ -31,8 +31,8 @@ I've now been doing daily Tesla protests for over a week, which, incredibly, mak
 Before I ever started protesting, my wife and I made Don't Buy a Swasticar stickers and I'd walk around my local supermarket parking lot, putting them under the windshield of Teslas.  That was my first bit of anti-Tesla swag.  Now I have:
 
 * Don't Buy a Swasticar stickers
-* Bumperstickers that saying www.canceltesla.org
-* Postcards highlighting the online protests coming on 2/28 (no purchasing), March 7-14 (no amazon), March 14 (general strike)
+* Bumperstickers that say www.canceltesla.org
+* Postcards highlighting upcomingonline protests (mine include 2/28 (no purchasing), March 7-14 (no amazon), March 14 (general strike))
 * Small 3d printed dragons
 
 The last one bears some explaining since there isn't an obvious connection to Tesla.  In my experience with people when you can reach out to someone's child, they remember it.  People **love** their kids.  I ask everyone that stops "May I ask if you have a small child in your life?".  If they answer yes then I give a dragon.  If the child is present then I let the child pick the one he likes.  Protesting is about building connections between people as much as it is about holding a sign.  And any way you can reach some is fair game, imho.
