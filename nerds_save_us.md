@@ -8,13 +8,13 @@ I am a tech nerd, a multiple time entrepreneur (albeit one on the mini level of 
 
 Once upon a time,  I founded a Silicon Valley company when I lived here in Indianapolis and I commuted back and forth from Indianapolis to San Francisco on a half time basis for roughly 3 years.  That unique experience gave me a very different understanding of Silicon Valley.  Fundamentally I never gave in and drank the kool aid.  I would go home every two weeks and live in the real world.  My fundamental learning from 3 years of that experience was this:
 
-**In Silicon Valley culture when the amount of money is high enough, there is no moral compromise that those will will not make**
+**In Silicon Valley culture when the amount of money is high enough, there is no moral compromise that people will will not make.**
 
 The reason for this is that Silicon Valley is about the creation of **generational wealth**.  And when you can look at your life in terms of "If I do this one bad thing, my kids might never need to work", it is trivial to **justify** almost any action.
 
 **Disclaimer**: I have bitterness here because I was a company founder who was fired by the board members I hired and then I watched from the sidelines while they drove my company out of business.  I take much joy in knowing that I was the only one out of that business who actually made any money.  Those earnings paid for my first house in Indianapolis.
 
-Another way to look at Silicon Valley is that culturally it is very similar to Los Angeles.  The difference is that where as in Los Angeles, everyone has a screen play, in Silicon Valley, everyone has a startup.  Now the difference is that while a screen play might sell for $50,000, a startup might sell for $50 million.
+Another way to look at Silicon Valley is that culturally it is very similar to Los Angeles.  The difference is that where as in Los Angeles, everyone has a screen play, in Silicon Valley, everyone has a startup.  While a screen play might sell for $50,000, a startup might sell for $50 million.
 
 The reason why no tech overlord is coming to save you is simple -- there is no money in it.  Yes you might have a Mark Cuban who sits on the sidelines and snipes at the administration but he isn't going to fundamentally endanger his fortune by taking on the administration.  Ultimately we, the people, will have to save ourselves.
 
@@ -25,4 +25,4 @@ Looking at this through the long lens of history, it is pretty clear to me that 
 3. Trump, musk Vance, etc. are all guilty of actual crimes now. They won't stop until the government is brought down. None of them want to go to jail. 
 4. The point of getting out there and raising protest signs is to find both find your people and to get the population that's asleep awake. In 50501 I have found my people and it is glorious. 
 
-Yes protest signs aren't going to cut it alone, but they are the start. This isn't something that tech nerds solve. Heck tech nerds caused this. This is something that the American populace solves through collective action.
+Yes protest signs aren't going to cut it alone, but they are the start. This isn't something that tech nerds willl solve. Heck tech nerds caused this. This is something that the American populace solves through collective action.
