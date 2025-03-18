@@ -179,3 +179,5 @@ Anyone who ever had poison ivy knows how it makes you feel.  Imagine a governmen
 
 And who would have thought that a group of old ladies, doing sit ins and knitting while holding protest signs, could have played a vital role in the ending of a government.
 
+The Handmaids with their 3d printed assassination daggers that got through metal detectors by being made of nothing more than ABS plastic and a 10 penny nail epoxied into a groove.
+
