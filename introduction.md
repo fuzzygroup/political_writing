@@ -1,4 +1,5 @@
-Introduction
+# Introduction
+
  Welcome to Take Back Your Government 2.0: A 21st Century Guide to Grass Roots Political Activism.
 
 This book was written by Scott Johnson, the State Organizer for Indiana 50501, as a result of his learning political activism in a trial by fire fashion.  
@@ -71,6 +72,10 @@ This book will step on a number of sacred cows.  I'm not a politician.  I'm not 
 In short, I believe that the very techniques used by the right can also be used by the left.  I term this "Move Fast and Break Things for Social Good".  
 
 In the immortal stylings of Guy Kawaski, by the end of this book, I don't want you to be a reader, I want you to be a fan.
+
+## A Second Warning
+
+Once you delve into the belly of American politics, you may well find that your perspective is forever shifted.  I know mine has been.  Things I've believed since I was young now don't resonate at all for me.  And the potential to make a difference is addictive.  I am, at 57 years old, working harder than I ever have.  
 
 ## About this Book's Title
 
