@@ -173,3 +173,9 @@ Add in biological warfare by seed tossing at sit ins -- Nancy Inspiration and ex
 
 Add in subversion by stickers on egg cases and generally being a legal but annoying dick - How to Win an Information War book inspiration
 
+And who would have ever thought that a bunch of senior citizen ladies, who organized peaceful sit ins outside the homes of Governors, Senators and Congress Critters would have been tossing seed "bombs" (really just envelopes of seeds) over the fences of the properties they sat outside.  Now you might think that this was innocent but any gardener knows that poison ivy just **spreads** and **mint** shudder.  This, like all the other myriad tiny acts of subversion, all worked to raise tension in America towards the breaking point.  The goal was never to provoke anything specific but to make the people in power feel as unhinged as the Trump regime had made everyone on the left feel.
+
+Anyone who ever had poison ivy knows how it makes you feel.  Imagine a government full of senior staff itchy and scratching.  
+
+And who would have thought that a group of old ladies, doing sit ins and knitting while holding protest signs, could have played a vital role in the ending of a government.
+
