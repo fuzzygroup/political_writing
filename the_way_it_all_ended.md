@@ -169,3 +169,7 @@ The night all the Teslas got graffiti was swastika
 The laser kids 
 https://www.instructables.com/How-to-make-a-burning-laser-for-CHEAP/?amp_page=true
 
+Add in biological warfare by seed tossing at sit ins -- Nancy Inspiration and expertise
+
+Add in subversion by stickers on egg cases and generally being a legal but annoying dick - How to Win an Information War book inspiration
+
